@@ -1,1 +1,1 @@
-![Alt text for the image](admin/img/1781240079_so.png)
+![Alt text for the image](admin/img/ss1.png)
